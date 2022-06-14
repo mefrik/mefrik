@@ -1,1 +1,1 @@
-no ome can remembed that day
+no one can remember that day
